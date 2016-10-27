@@ -1,0 +1,1 @@
+# osztott-kb-6
